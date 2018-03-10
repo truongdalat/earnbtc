@@ -1,0 +1,2 @@
+# earnbtc
+good mining 
